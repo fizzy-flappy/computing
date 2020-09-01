@@ -1,3 +1,5 @@
+Fireworks by Katy Perry (lyrics edit)
+
 Do you ever feel just like a piece of trash
 
 Drifting trough your ife
