@@ -1,5 +1,6 @@
 hewlo
-"it's not unti you fall that you fly"
+What do you call something that cannot do anything well?
+Scroll down for an answer
 
 
 
@@ -96,5 +97,4 @@ hewlo
 
 
 
-
-Thanks, bye!
+Me, bye!
