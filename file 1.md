@@ -27,11 +27,20 @@ There's still hope in you
 
 You just have to find your hope
 
-And bighten yourself
+And brighten yourself
 
 Just find the one
 
 That can light up your life
+
+
+Cause you are stuck in darkness
+
+You can't find the light you need
+
+And here's the light oh- oh- oh-
+
+You're gonna be saved by it oh- oh- oh-
 
 
 Cause you are stuck in darkness
