@@ -2,7 +2,7 @@ Fireworks by Katy Perry (lyrics edit)
 
 Do you ever feel just like a piece of trash
 
-Drifting trough your ife
+Drifting trough your life
 
 Wanting to change it all
 
@@ -12,13 +12,17 @@ Do you ever feel there's no point in life
 Like a house of sticks
 
 One blow from collapsing
+(To me, this line doesnt match the tune if you were to hum it, so maybe...can say
+Do you ever feel, feel that life's so bleak
+everything is grey
+not a single hue)
 
 
 Do you ever feel like no one understands
 
 All you say and do
 
-Yet no one seems to get a thing
+No one gets a thing
 
 Do you know that there's still a chance for you
 
@@ -27,7 +31,7 @@ There's still hope in you
 
 You just have to find your hope
 
-And bighten yourself
+And brighten up
 
 Just find the one
 
